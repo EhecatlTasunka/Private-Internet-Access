@@ -10,7 +10,7 @@ Private internet Access is offered in 3 major packages;
 	<li>$35.95 6-month package at only $5.99 monthly</li>
 </ol>
 
-The $39.95 yearly package is the most ideal service especially for budget conscious users.using  <a href="https://vpnstart.com/private-internet-access-coupon-code/">vpnstart.com coupon code</a> you might saveupto 77% for a limited time.PIA uses a simple and impressive one click setup as well as a well designed and easy to use software that is compatible to most operating systems including mobile devices. The service offers unrestricted access to internet services across major countries such as UK, US, Canada, France, Germany and Sweden among others.
+The $39.95 yearly package is the most ideal service especially for budget conscious users.using  <a href="https://vpnstart.com/private-internet-access-coupon-code/">vpnstart.com coupon code</a> you might save upto 77% for a limited time.PIA uses a simple and impressive one click setup as well as a well designed and easy to use software that is compatible to most operating systems including mobile devices. The service offers unrestricted access to internet services across major countries such as UK, US, Canada, France, Germany and Sweden among others.
 
 These internet services include Hulu, YouTube, iPlayer and even Demand 5. PIA also helps to remove any restrictions imposed by ISP.
 <h3>Features</h3>
